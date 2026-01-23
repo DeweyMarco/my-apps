@@ -75,7 +75,7 @@ Since we do not collect or store your data on external servers, traditional data
 
 If you have questions about this Privacy Policy, please contact us at:
 
-**Email:** [your-email@example.com]
+**Email:** marco314@att.net
 
 ---
 
